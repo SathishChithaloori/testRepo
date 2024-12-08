@@ -8,3 +8,4 @@ Chandrapur MP Pratibha Dhanorkar and five Congress leaders lost the electoral co
 "Police have not disclosed details about around 6,800 bogus voters registered in the Rajura assembly constituency before the elections," Dhote claimed.
 
 Dhanorkar said the elections results went against Congress due to EVMs.
+this is last line in the merge
